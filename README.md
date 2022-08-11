@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Joseph
+- 👋 Hi, I’m @ax13111 a.k.a Joseph Sun.
 - 👀 I’m interested in reading novels, watching series, and playing guitar and basketball!
 - 🌱 I’m currently learning Python and R.
 - 💞️ I’m an in coming student of Warwick Business School majoring in Business Analytics.
